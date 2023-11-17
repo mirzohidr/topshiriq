@@ -1,0 +1,2 @@
+# topshiriq
+mening topshirig'im
